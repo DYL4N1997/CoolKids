@@ -1,2 +1,2 @@
 # CoolKids
-Cool people
+Cool people very cool beans
